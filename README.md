@@ -2,7 +2,7 @@
 
 Second-year Artificial Intelligence student focused on the intersection of security automation, machine learning models, and defensive tech infrastructure.
 
-[LinkedIn](https://linkedin.com/in/YOUR_LINKEDIN_HERE) / [Email](mailto:YOUR_EMAIL_HERE)
+[LinkedIn](https://linkedin.com/in/ob3mor) / [Email](mailto:omar2018b66@gmail.com)
 
 ---
 
